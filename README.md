@@ -1,2 +1,2 @@
-# Azuria68.github.io ooo
+# Azuria68.github.io
 
